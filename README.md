@@ -1,2 +1,0 @@
-# emptyplasticcup.github.io
-poo
